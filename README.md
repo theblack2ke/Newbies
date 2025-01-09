@@ -1,4 +1,4 @@
-# Newbies
+# Newbies  🔥 
 Projects that I made 
 
 
